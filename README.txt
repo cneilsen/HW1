@@ -1,2 +1,0 @@
-Carter Neilsen
-Colorado Rockies
